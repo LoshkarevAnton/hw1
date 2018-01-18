@@ -7,7 +7,7 @@
 * Не понимает, что он делает на филологии, но при этом радуется тому, что он там учится.
 * Неизвестный источник сообщил о карте персонажа в Hearthstone: 
 
-![alt_text](https://drive.google.com/file/d/1sGOu170UvoSnbJx7FTKAY9Pl_QqUfAQ9/view?usp=sharing "Карта персонажа в Hearthstone")
+![alt_text](https://image.ibb.co/gDDoSR/photo5406823716802898047.jpg "Карта персонажа в Hearthstone")
 
 * А так же, предоставил ссылку на его аккаунт в Instagram:
 
