@@ -8,3 +8,13 @@
 * Неизвестный источник сообщил о карте персонажа в Hearthstone: 
 
 ![alt_text](https://lh6.googleusercontent.com/Qlk_a4TwA-qWDLVTCoZA6TJGuTPrE7YuOXw1YtS9m8mZpKlX_Aig2EYY7XmK63ZneOf645NpB-o8kZKFxFjJ=w1366-h588 "Карта персонажа в Hearthstone")
+
+* А так же, предоставил ссылку на его аккаунт в Instagram:
+
+[Instagram персонажа](https://www.instagram.com/creogenic/ "Instagram")
+
+* В свободное время данный персонаж предпочитает ~~ничего не делать~~ читать научную литературу к семинарам.
+* А тут он уже не знает, что писать, но показывает, что умеет делать текст **жирным**, и даже _курсивом_!!!
+* А следующее слово он сделает жирным **_курсивом_**!!!
+
+![alt_text](https://cs4.pikabu.ru/post_img/2015/08/04/11/1438713180_1678205914.jpg)
